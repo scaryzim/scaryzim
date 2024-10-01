@@ -21,7 +21,7 @@ ${\textsf{\color{Yellow} { 🐾 ⚝ } IT/XE/XIR/XENOS + HE/HIM IS FINE}}$
 ![tumblr_ee2c838eabf172c02f23dc80bea9ff35_c2251e68_75](https://github.com/user-attachments/assets/82983c35-d8ad-48b9-9a44-04730adcf2ce)${\textsf{\color{Blue}: + USUALLY NEAR DOCKS OR HANGING OUT WITH A FRIEND COME INT WITH US WE DON'T BITE !}}$![tumblr_43582a444131d15f09f3c91d5a1ec7ea_7df1de82_250](https://github.com/user-attachments/assets/2a0982c4-1203-4420-bebf-3c44485417d2)
 
 ![tumblr_ee2c838eabf172c02f23dc80bea9ff35_c2251e68_75](https://github.com/user-attachments/assets/d3dd6cf6-cdf6-4587-af3a-2b390bceaa93)
- ${\textsf{\color{Orange}: ENDOGENIC SYSTEM ; TULPA / ENDOS DNI ⚝}}$
+ ${\textsf{\color{Orange}: TRAMAUGENIC SYSTEM ; TULPA / ENDOS DNI ⚝}}$
 ![tumblr_8d2e2c2de91bf9474ae99911881e1bc7_56c4f52d_540](https://github.com/user-attachments/assets/7d8619ca-217a-408d-ad11-9881081eda51)
 
  ![tumblr_ee2c838eabf172c02f23dc80bea9ff35_c2251e68_75](https://github.com/user-attachments/assets/c2dda1ff-d994-44b7-b8d3-b04eceede21d)
