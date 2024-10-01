@@ -35,8 +35,6 @@ ${\textsf{\color{Orange}our system is called ; " The Star Catcher System " !}}$
 
 ${\textsf{\color{Yellow}Kaden FumbleBottom IRL / Clinten IRL}}$
 
-${\textsf{\color{Green}Vy is my mother!}}$ 
-
 ![tumblr_c678a449efadbc444dbd8726ae9e99fc_4ea30705_640](https://github.com/user-attachments/assets/791f8bf9-bd7f-4e13-80d3-7d0e35465a3c)
 
 ![0138-greenglow](https://github.com/user-attachments/assets/d4a6b64b-ddcd-4d94-8eed-7f134025805e)
